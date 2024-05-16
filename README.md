@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @tanhak
 - 👀 I’m interested in ...Cybersecurity
-- 🌱 I’m currently learning ... Bachelor of Computer Applications
+- 🌱 Completed Bachelor of Computer Applications
 - 💞️ I’m looking to collaborate on ... Friverr and freelancer.com
 - 📫 How to reach me ... insta :- @harishk.nair X:- @harishzeus  
 
